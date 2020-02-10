@@ -1,0 +1,1 @@
+Tiles georeferenziate di prova
